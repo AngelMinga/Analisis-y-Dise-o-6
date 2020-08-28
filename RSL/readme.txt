@@ -1,0 +1,1 @@
+https://parsif.al/AngelMinga/metodologia-en-elicitacion-de-requisitos/
